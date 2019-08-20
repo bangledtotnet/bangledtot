@@ -18,7 +18,7 @@ Cách thức chuyển động vui chơi của loại bảng này không cầu k�
 
 Bảng Led Tốt chuyển động với tiêu chuẩn đưa về lợi ích tối đa cho khách hàng, lấy chữ tín làm tiền để cách tân và nâng tầm phát triển. Công ty Bangledtot xem khách hàng là thượng đế để phục vụ.
 Địa chỉ: 115  u Cơ, phường 14, quận Tân Bình, Thành Phố.HCM.
-websitesite: <a href="https://goo.gl/bản%20đồs/FygbcijG6go8U1cx7">Công ty bangledtot/</a>
+websitesite: <a href="https://goo.gl/maps/2Sjvqguh5TvrQPhQ7">Công Ty bangledtot</a>
 HotIine: 0901 302 454.
 Thời gian làm việc:
  - Thứ Hai đến Thứ Bảy: 7:00 – 18:00
